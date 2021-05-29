@@ -5,6 +5,6 @@
 - 👯 I’m looking to collaborate on open source projects.
 - 🤔 I’m looking for help with training english.
 - 💬 Ask me about 
-- 📫 How to reach me: https://twitter.com/home
+- 📫 How to reach me: https://twitter.com/AlfredoMenCap
 - 😄 Pronouns: He | Him
 - ⚡ Fun fact: Movies, Videogames and Cats.
